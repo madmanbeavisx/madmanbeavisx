@@ -7,7 +7,7 @@
 - 🌱 I’m currently learning Modding in SPT and also learning nuclear physics.
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me @ beavis@madmanbeavis.com
-  - I do have a day job so please be paitnt as I get back to you as I can.
+  - I do have a day job so please be patient as I get back to you as I can.
 - ⚡ Fun fact: I'm a Star Wars and Star Trek fan, fight me. But I also still enjoy my anime here and there
 
 <!---
