@@ -10,7 +10,4 @@
   - I do have a day job so please be patient as I get back to you as I can.
 - ⚡ Fun fact: I'm a Star Wars and Star Trek fan, fight me. But I also still enjoy my anime here and there
 
-<!---
-madmanbeavisx/madmanbeavisx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/U7U31439P2)
